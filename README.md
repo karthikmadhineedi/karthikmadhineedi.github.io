@@ -1,1 +1,0 @@
-# karthikmadhineedi.github.io
